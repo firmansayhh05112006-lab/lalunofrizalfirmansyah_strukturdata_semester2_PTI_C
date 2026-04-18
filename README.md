@@ -1,0 +1,1 @@
+# lalunofrizalfirmansyah_strukturdata_semester2_PTI_C
